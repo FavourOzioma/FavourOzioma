@@ -2,7 +2,7 @@
 - 👀 I’m interested in growing my career on data analysis,
 - 🌱 I’m currently learning Data Analysis with the incunator hub @LITA,
 - 💞️ I’m looking forward to collaborate with different companies on more Projects,
-- 📫 How to reach me favourozioma02@gmail.com or 08185555202/09106877529,
+- 📫 How to reach me favourozioma02@gmail.com or 08185555202/08106877529,
 - ⚡ Fun fact: i love learning new things.
 
 <!---
